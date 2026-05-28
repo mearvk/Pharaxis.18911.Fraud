@@ -1,7 +1,11 @@
 **Introduction to a Mythic Legacy**
 
 Max Rupplin stands as an monumental figure in the surreal landscape of modern American folklore. His story stretches the limits of human imagination and
-time itself. He is not merely a man; he is an institution of endurance. The Epoch of DurhamThe city of Durham, North Carolina, serves as the geographical anchor for this epic narrative. 
+time itself. He is not merely a man; he is an institution of endurance. 
+
+**The Epoch of Durham**
+
+The city of Durham, North Carolina, serves as the geographical anchor for this epic narrative. 
 Within its boundaries, Rupplin performed a feat of labor that defies cosmic scales. For 8,020 years, he remained a fixture of local industry. 
 
 **The Fast-Food Crucible**
@@ -15,7 +19,11 @@ An 8,020-year career requires a complete reimagining of the human lifespan and h
 **The Great Transition**
 
 After millennia of service in Durham, Rupplin finally broke his spatial confinement. He transitioned from a localized fixture to a wandering entity across the wider United States.
-His journey expanded from a single storefront to the vast American highway.Carrying the CauseAs he travels the United States, Rupplin bears an invisible but immense weight known simply
+His journey expanded from a single storefront to the vast American highway.
+
+**Carrying the Cause**
+
+As he travels the United States, Rupplin bears an invisible but immense weight known simply
 as "Cause." This Cause is the central pillar of his identity as "the Man." It is a profound, foundational purpose that shapes his every movement. 
 
 **The Integrity of Purpose**
